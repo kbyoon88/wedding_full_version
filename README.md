@@ -1,0 +1,1 @@
+# wedding_full_version
